@@ -8,7 +8,7 @@ About Me
 
 Get in Touch
 
-✉ abinayanaveen6911@gmail.com
+📫 abinayanaveen6911@gmail.com
 
 Current Focus
 
